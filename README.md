@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Irends
 - 👀 I’m interested in Cybersecurity and Software Engineer
-- 📫 How to reach me: https://www.linkedin.com/in/irends-indriana-98b56830a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 📫 How to reach me: https://www.linkedin.com/in/irends-indriana-98b56830a
 - 😄 Pronouns: She/Her
   
 
